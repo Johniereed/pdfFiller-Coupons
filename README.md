@@ -13,9 +13,13 @@ Get up to [70% off](https://www.pdffiller.com/) on Basic, Plus, and Premium plan
 **What You’ll Get:**
 
 👉 Edit, highlight, erase, and merge PDFs
+
 👉 Digitally sign and request signatures
+
 👉 Turn PDFs into Word, Excel, or other formats
+
 👉 Create fillable forms & templates (Plus & Premium)
+
 👉 Password protection & version history (Plus & Premium)
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXewfCzuDpUJ5BFXo3Ml8oSrvjJxjO9vNw5B4mM1xM1QbUh92Us_8kIWIjyM_5GlJDfp3G-n0-s-gQVNY2MexQn9tNt3KCeHU1Y5njhOZZDBbgIossySV1gbJ20RkccZe9c43IJq?key=InBFmaGxVxoaJuvk2gYHJwMv)](https://www.pdffiller.com/)
@@ -35,7 +39,9 @@ When you sign up for PDFfiller and choose annual billing, you will get a [63% di
 **What You'll Get:**
 
 👉 Up to 63% off when choosing annual plans
+
 👉 Premium Plan for just $15/month (vs. $40 on monthly billing)
+
 👉 Perfect for businesses & professionals who use PDFs regularly
 
 ## Extra 10% Off Annual PDFfiller Subscriptions
@@ -45,8 +51,11 @@ Get an extra [10% off](https://www.pdffiller.com/) when you choose any annual pl
 **What You’ll Get:**
 
 👉 eSignatures & Collaboration
+
 👉 Secure Cloud Storage
+
 👉 Reusable Templates
+
 👉 Advanced Security & Branding
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXewfCzuDpUJ5BFXo3Ml8oSrvjJxjO9vNw5B4mM1xM1QbUh92Us_8kIWIjyM_5GlJDfp3G-n0-s-gQVNY2MexQn9tNt3KCeHU1Y5njhOZZDBbgIossySV1gbJ20RkccZe9c43IJq?key=InBFmaGxVxoaJuvk2gYHJwMv)](https://www.pdffiller.com/)
@@ -64,7 +73,9 @@ This PDFfiller coupon offered a [25% discount](https://www.pdffiller.com/) on pu
 **What You’ll Get:**
 
 👉 25% off your total purchase when spending $96+
+
 👉 Ideal for professionals & businesses needing PDF solutions
+
 👉 Savings on premium plans and PDF tools
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXewfCzuDpUJ5BFXo3Ml8oSrvjJxjO9vNw5B4mM1xM1QbUh92Us_8kIWIjyM_5GlJDfp3G-n0-s-gQVNY2MexQn9tNt3KCeHU1Y5njhOZZDBbgIossySV1gbJ20RkccZe9c43IJq?key=InBFmaGxVxoaJuvk2gYHJwMv)](https://www.pdffiller.com/)
